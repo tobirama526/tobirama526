@@ -4,6 +4,7 @@
 -     my favorite series are mr robot , naruto and kimetsu no yaiba
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
+- FUCK SOCIETY
 
 <!---
 tobirama526/tobirama526 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
