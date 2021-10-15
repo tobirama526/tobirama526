@@ -1,9 +1,8 @@
-- 👋 Hi, I’m OB1T0
-- 👀 I’m interested in hacking and watch anime
-- 🌱 I’m currently learning ...
--     my favorite series are mr robot , naruto and kimetsu no yaiba
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- Hi, I’m OB1T0
+- I’m interested in hacking and watch anime
+- I’m currently learning to dominate the world
+- my favorite series are mr robot , naruto and kimetsu no yaiba
+- I’m looking to collaborate on the World's End
 - FUCK SOCIETY
 
 <!---
