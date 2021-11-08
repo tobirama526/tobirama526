@@ -4,7 +4,7 @@
 
 -😈 I’m currently dominating the world
 
--🤘  my favorite series are mr robot , naruto and kimetsu no yaiba
+-🤘  my favorite series are mr robot, death note, tokyo revengers, naruto and kimetsu no yaiba
 
 -💥 I’m looking to collaborate on the World's End
 
